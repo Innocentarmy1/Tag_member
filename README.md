@@ -17,7 +17,7 @@
  
 </p>           
 
-## ᴀɴy ᴩʀᴏʙʟᴇᴍ ʟᴇʀ ᴜꜱ ᴋɴᴏᴡ ᴀᴛ [👑ᴏᴡɴᴇʀ👑](Https://t.me/Alone_Shaurya_king) .
+## ᴀɴy ᴩʀᴏʙʟᴇᴍ ʟᴇʀ ᴜꜱ ᴋɴᴏᴡ ᴀᴛ [👑ᴏᴡɴᴇʀ👑](Https://t.me/Deewana_mahadev_ka) .
 
 </p>
 
@@ -25,28 +25,28 @@
 
 </p>
 
-![github card](https://github-readme-stats.vercel.app/api/pin/?username=ItsAttitudeking&repo=tag_member&theme=dark)
+![github card](https://github-readme-stats.vercel.app/api/pin/?username=Innocentarmy1&repo=tag_member&theme=dark)
 
 </p>
 
 ## .ᴜᴩᴅᴀᴛᴇꜱ🔊
 
-[![ᴜᴩᴅᴀᴛᴇꜱ](https://img.shields.io/badge/ᴜᴩᴅᴀᴛᴇꜱ-attitude_galaxy-red?style=for-the-badge&logo=telegram)](https://t.me/attitude_galaxy)</br></br>
+[![ᴜᴩᴅᴀᴛᴇꜱ](https://img.shields.io/badge/ᴜᴩᴅᴀᴛᴇꜱ-https://t.me/ek_2je_ke_vastee-red?style=for-the-badge&logo=telegram)](https://t.me/)</br></br>
 
 </p>
 
 ## .ꜱᴜᴩᴩᴏʀᴛ🔧
 
-[![ꜱᴜᴩᴩᴏʀᴛ](https://img.shields.io/badge/ꜱᴜᴩᴩᴏʀᴛ-sweet_Kingdom-red?style=for-the-badge&logo=telegram)](https://t.me/sweetkingdom1)</br></br>
+[![ꜱᴜᴩᴩᴏʀᴛ](https://img.shields.io/badge/ꜱᴜᴩᴩᴏʀᴛ-thunder_buddy_group-red?style=for-the-badge&logo=telegram)](https://t.me/thunder_buddy_group)</br></br>
 
 </p>
 
 ## .ᴏᴡɴᴇʀ👑
 
-[![ᴏᴡɴᴇʀ](https://img.shields.io/badge/Telegram-Contact%20Me-informational)](Https://t.me/Alone_Shaurya_king)
+[![ᴏᴡɴᴇʀ](https://img.shields.io/badge/Telegram-Contact%20Me-informational)](Https://t.me/Deewana_mahadev_ka)
 
 </p>
 
 ## .ᴅᴇᴩʟᴏy📥
 
-[![ᴅᴇᴘʟᴏʏ](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy?template=https://github.com/ItsAttitudeking/Tag_member)
+[![ᴅᴇᴘʟᴏʏ](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy?template=https://github.com/Innocentarmy1/Tag_member)
